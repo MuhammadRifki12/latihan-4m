@@ -1,0 +1,1 @@
+Semangat Belajar , Pantang Menyerah dan Selalu berusaha
